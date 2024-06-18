@@ -9,6 +9,3 @@ Meu nome é Tatiane
 ### Você pode entrar em contato comigo 📧
 
 0000112143163xsp@al.educacao.sp.gov.br
-
-
-![Uploading happy-pleased.gif…]()
